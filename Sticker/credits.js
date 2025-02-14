@@ -1,0 +1,9 @@
+/* [  DATABASE BY KIYO ( ZIYO )  ]
+
+> BEBAS PAKAI
+> HASIL MENCARI SENDIRI
+> UNTUK APA AJA
+> SELALU DIUPDATE
+> PEMAKAIAN PUBLIK
+
+[  ============================  ] */
